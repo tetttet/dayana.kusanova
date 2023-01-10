@@ -1,2 +1,1 @@
 # dayana.kusanova
-* HI
